@@ -1,0 +1,1 @@
+# Trademark_Journal_Scrapper
